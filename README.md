@@ -1,0 +1,1 @@
+# Shimomura-Diary-December-12-1941
